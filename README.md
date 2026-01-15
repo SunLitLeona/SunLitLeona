@@ -1,7 +1,7 @@
 <h1></h1>
 <img width="399" height="361" alt="image" src="https://github.com/user-attachments/assets/7abf2e58-1529-4725-87de-64440271ef62" />
 
-𝘿𝙄𝘿 ꜱʏꜱᴛᴇᴍ. ᴜꜱᴜᴀʟʟʏ ᴠᴇʀʏ 𝘀𝘁𝗮𝗻𝗱𝗼𝗳𝗳𝗶𝘀𝗵 𝘢𝘯𝘥 𝘤𝘢𝘯 𝘤𝘰𝘮𝘦 𝘰𝘧𝘧 𝘢𝘴 𝐫𝐮𝐝𝐞. I'm **gender apathetic**, you can't misgender me. But you can try. ^_^ I *prefer* masculine pronouns.
+𝘿𝙄𝘿 ꜱʏꜱᴛᴇᴍ. ᴜꜱᴜᴀʟʟʏ ᴠᴇʀʏ 𝘀𝘁𝗮𝗻𝗱𝗼𝗳𝗳𝗶𝘀𝗵 𝘢𝘯𝘥 𝘤𝘢𝘯 𝘤𝘰𝘮𝘦 𝘰𝘧𝘧 𝘢𝘴 𝐫𝐮𝐝𝐞. I'm **transgender**. ^_^ He/Him only pls :)
 <h2></h2>
 
 𝘽𝙚𝙛𝙤𝙧𝙚 ʏᴏᴜ ɪɴᴛᴇʀᴀᴄᴛ - ᴡᴇ'ʀᴇ 𝟫𝟫.𝟫𝟫% ᴀʟᴡᴀʏꜱ ​🇼​​🇮​​🇹​​🇭​ ​🇴​​🇺​​🇷​ 𝐩𝐚𝐫𝐭𝐧𝐞𝐫 𝘰𝘳 𝘮𝘰𝘰𝘵𝘪𝘦𝘴. 𝒮𝑜, ᴡᴇ ᴘʀᴏʙᴀʙʟʏ ᴡᴏɴ'ᴛ ɪɴᴛᴇʀᴀᴄᴛ. ᴡᴇ ᴀʟꜱᴏ 𝘴𝘵𝘳𝘶𝘨𝘨𝘭𝘦. ᴀ ʟᴏᴛ. ᴡɪᴛʜ ɪᴅᴇɴᴛɪꜰʏɪɴɢ ᴡʜᴏ ɪꜱ ꜰʀᴏɴᴛɪɴɢ. ʜᴇɴᴄᴇ ᴛʜᴇ ꜰʀᴇQᴜᴇɴᴛ ᴘᴏɴʏ ꜱᴡɪᴛᴄʜᴇꜱ.
