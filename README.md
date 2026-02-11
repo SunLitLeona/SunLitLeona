@@ -18,7 +18,7 @@
 
 -I'm dyslexic & prone to having typos/errors in whatever the freak I'm saying. Typing quirks are hard for me to read as well, sorry again. :(
 
--The mention of vomit/puking or along the lines of it leading up to that triggers me bad. I'll hide you for 15 minutes if I see the mentions of it.😓
+-The mention of vomit/puking & rape triggers me bad. I'll hide you for 15 minutes if I see the mentions of it.😓
 
 -I **AM** a Fictionkin! Doubles I don't quite mind :) However,, Jabber fictives/fictionkins make me slightly uncomfortable if interactions are romantic, for I am happily taken by my girlfriend @IWantAC00lName :D
 
