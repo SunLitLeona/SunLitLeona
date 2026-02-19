@@ -1,13 +1,17 @@
-<p align="center"><img width="500" height="348" alt="image" src="https://github.com/user-attachments/assets/158dbfab-fec6-485a-9658-d6bb472f8588" />
+<img width="1000" height="500" alt="image" src="https://github.com/user-attachments/assets/094dafe2-e733-4243-9720-7dc7d025de75" />
 
 
 
 
-<h1><p align="center">Hello</h1>
+
+
+<h1><p align="center">Hello!<img width="50" height="40" alt="image" src="https://github.com/user-attachments/assets/2c0b0cb9-e6fd-44dd-97b7-1d8ffb4a523b" />
+</h1>
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
-<p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/93442098-bd75-492b-838b-c5dc7edf6508" />
+<p align="center"><img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/9d462048-308f-4ed7-a750-357318bdf304" />
+
 
 
 
@@ -16,13 +20,15 @@
 
 <h1><p align="center">Introduction of some sorts</h1>
 
-I'm Tomb! Or Zanka. Or whatever you wanna call me, okay? Okay!! ^^ I'm 16(soon to be 17 EEEEE!!!) and I'm kinda always on low social battery,, I easily fixate on things due to my autism, sorry. I'm also the host :D My interests currently are BSD, TWST, TSS, and I like to draw but we don't need to mention my heavy art block. I subtly volunteer every now and then for a local animal shelter :)
+I'm Zanka! Or Chihiro. Or whatever you wanna call me!!<img width="50" height="42" alt="image" src="https://github.com/user-attachments/assets/8af8c2fb-441f-4fa7-9747-1c56315ceb35" /> I'm usually always above Spawn on the cliff on ss2 with my friends :D I'm very prone to going quiet whenever someone talks to me because of my social anxiety, sorry :( Besides that, I'm super talkative once I'm comfortable with someone😓 If that bothers you, please hide me or refrain interacting with me. I **DON'T** really appreciate someone trying to cuddle me without asking either, especially if I don't know you. Eventhoughtheanswerwillbenoanyway.<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/7cc480b7-f54c-4234-a4e8-6c4aa3eee097" />
+
+
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
 <h1><p align="center">DNI.</h1>
 
-Basic DNI such as racism, homophobia, you get the point. I don't mind whispers or interactions UNLESS I'm with friends and/or my partner. I don't really appreciate the people that bother either or don't respect boundaries. :( While I don't believe in touch triggers, that should be no reason you bully/harass somebody. Also if you see our Jabber front, please ignore him he's a douchebag.
+Basic DNI such as racism, homophobia, you get the point. I don't mind whispers or interactions UNLESS I'm with friends and/or my partner. I don't really appreciate the people that bother either or don't respect boundaries. :( While I don't believe in touch triggers, that should be no reason you bully/harass somebody. <img width="50" height="40" alt="image" src="https://github.com/user-attachments/assets/d4e4d41d-c03d-4f5e-ae53-182ff8e0d00f" />
 
 
 <p align="center">
